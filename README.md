@@ -4,5 +4,5 @@
 
 ### Faça isso agora:
 - Beba água
-[- Medite um pouco](https://www.youtube.com/watch?v=RylLBe8yAwc)
+- [ Medite um pouco](https://www.youtube.com/watch?v=RylLBe8yAwc)
 - Compre ETH e BTC *-*
